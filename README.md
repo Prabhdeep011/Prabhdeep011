@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **machine learning project**
 
-- 🤝 contact me [https://linktr.ee/singhprabhdeep](https://linktr.ee/singhprabhdeep)
+- LinkTree [https://linktr.ee/singhprabhdeep](https://linktr.ee/singhprabhdeep)
 
 - 📫 How to reach me **dhingraprabh@gmail.com**
 
